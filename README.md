@@ -4,7 +4,7 @@ Admins are Ike and Payton.
 We have no idea wtf to do RN.
 9/18
 
-Updated Wiki
-Started researching
-Barely started coding
+Updated Wiki.
+Started researching.
+Barely started coding.
 9/19
